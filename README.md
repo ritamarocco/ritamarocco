@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ritamarocco
-- 👀 I’m interested in Projects;
+- 👀 I’m interested in Prodct Owner and Projects;
 - 🌱 I’m currently learning Project management
  and Agile; 
 - 📫 How to reach me https://www.linkedin.com/in/ritamarocco/
